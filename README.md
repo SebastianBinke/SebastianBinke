@@ -1,4 +1,5 @@
 - Hi, I’m Sebastian Binke
 - Currently studying as an undergrad in business informatics at the University of Rostock
+- I do study with me livestreams on YouTube under @SebastianBinke
 - You can contact me via sebastian.binke@uni-rostock.de
 - My pronouns are He/Him
