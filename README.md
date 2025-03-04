@@ -3,3 +3,4 @@
 - I do study with me livestreams on YouTube under @SebastianBinke
 - You can contact me under sebastian.binke@uni-rostock.de
 - My pronouns are He/Him
+- Work Account is SebastianBinkee
